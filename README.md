@@ -4,5 +4,7 @@
 
 - My Blog - [MAKS Blog](https://maksboralessa.blogspot.com)
 - I'm at Researchgate - [M A K S Boralessa](https://www.researchgate.net/profile/M_A_Boralessa)
+- Let's LinkedIn - [Kalhan Boralessa](https://www.linkedin.com/in/maksboralessa/)
+- Twitter - [Kalhan Boralessa](https://twitter.com/MAKSBoralessa)
 
 
